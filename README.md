@@ -18,4 +18,3 @@ Saya adalah seorang pengembang dengan latar belakang teknik yang berfokus pada p
 
 ## 📫 Hubungi Saya
 - **Email:** loyalti.com66@gamail.com
-- **LinkedIn:** [Link Profil LinkedIn Anda]
